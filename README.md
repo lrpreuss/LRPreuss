@@ -8,7 +8,7 @@ No menu aqui à esquerda, está meu endereço de email e LinkedIn -> não hesite
 🎯 Foco: desenvovimento de software, análise de dados <br><br>
 🎤 Em transição de carreira, vinda de comunicação audiovisual/ áudio <br><br>
 🎓 Formada em produção audiovisual, estudando Informática para Negócios - FATEC SBC <br><br>
-🐱‍💻 Talvez, um dia, codar de volta para audiovisual/ áudio <br>
+🐱‍💻 Estudo codando para audiovisual/ áudio <br>
 
 ---
 <p>🟢 Atualmente:</p>
